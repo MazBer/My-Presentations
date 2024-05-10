@@ -10,3 +10,6 @@ https://www.canva.com/design/DAF4L4cebbY/OANFx4jUlA1VRYjCKXZsOg/edit?utm_content
 https://www.canva.com/design/DAF-qCE7oQ0/slf5i1IA775lJJhNzznmUA/edit?utm_content=DAF-qCE7oQ0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 https://www.canva.com/design/DAF_MD3UpUI/Ho4izCww5HQLWZhR2CbUFA/view?utm_content=DAF_MD3UpUI&utm_campaign=designshare&utm_medium=link&utm_source=editor
+
+### Alanya
+https://www.canva.com/design/DAGBvXFMQj8/yqLlTakrbmQk82x0WFI5UA/edit?utm_content=DAGBvXFMQj8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
