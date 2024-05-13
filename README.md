@@ -21,3 +21,6 @@ https://www.canva.com/design/DAGBvXFMQj8/yqLlTakrbmQk82x0WFI5UA/edit?utm_content
 
 ### Güreş
 https://www.canva.com/design/DAGE2vKdojo/TTVv62snNOUodlVMSmbn4Q/edit?utm_content=DAGE2vKdojo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### Doctor Strange
+https://www.canva.com/design/DAGBdWozmL8/-YEZMeHwshsX_-OHXedKbQ/edit?utm_content=DAGBdWozmL8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
