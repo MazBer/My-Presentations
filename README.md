@@ -19,7 +19,7 @@ https://www.canva.com/design/DAF_MD3UpUI/Ho4izCww5HQLWZhR2CbUFA/view?utm_content
 ### Alanya
 https://www.canva.com/design/DAGBvXFMQj8/yqLlTakrbmQk82x0WFI5UA/edit?utm_content=DAGBvXFMQj8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
-https://drive.google.com/file/d/1QEE6MQGHpVGw4jPCFPVMSleSo7dwRO-k/view?usp=drivesdk
+https://drive.google.com/file/d/1xWd6kBt7b9IzKCo-EBnZMgANKuYE8IRA/view?usp=sharing
 
 ### Ringen
 https://www.canva.com/design/DAGE2vKdojo/TTVv62snNOUodlVMSmbn4Q/edit?utm_content=DAGE2vKdojo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
