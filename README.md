@@ -28,3 +28,9 @@ https://drive.google.com/file/d/1Q9Nvf1qQMUpaaCTLtVbO4EN14Gu6ONmP/view?usp=drive
 
 ### Doctor Strange
 https://www.canva.com/design/DAGBdWozmL8/-YEZMeHwshsX_-OHXedKbQ/edit?utm_content=DAGBdWozmL8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### Sessiz Gemi
+https://1drv.ms/b/s!AtR_rghc0EDeimTiBkhAAk1lFTpH?e=vZjMwb
+
+### İyi Arkadaş
+https://1drv.ms/b/s!AtR_rghc0EDeimMWsn_44c2BhH1Q?e=BNdN20
