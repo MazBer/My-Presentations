@@ -34,3 +34,6 @@ https://1drv.ms/b/s!AtR_rghc0EDeimTiBkhAAk1lFTpH?e=vZjMwb
 
 ### İyi Arkadaş
 https://1drv.ms/b/s!AtR_rghc0EDeimMWsn_44c2BhH1Q?e=BNdN20
+
+### Fatih Camileri
+https://www.canva.com/design/DAGWkNhHjgU/4SdDhF9VExE6RdDapKD-3Q/edit?utm_content=DAGWkNhHjgU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
