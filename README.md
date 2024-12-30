@@ -42,3 +42,6 @@ https://www.canva.com/design/DAGWkNhHjgU/4SdDhF9VExE6RdDapKD-3Q/edit?utm_content
 https://1drv.ms/p/s!AtR_rghc0EDejB0YZyiUAl2JKedf?e=oAQmc1
 
 Download: https://1drv.ms/u/s!AtR_rghc0EDejCIY0oTcdbUZpFoc?e=o1cAkF
+
+### Koca Ali
+https://www.canva.com/design/DAGayTCc_zw/JpnOxFTDGnIAoXClXXBfpg/edit?utm_content=DAGayTCc_zw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
