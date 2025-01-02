@@ -45,3 +45,6 @@ Download: https://1drv.ms/u/s!AtR_rghc0EDejCIY0oTcdbUZpFoc?e=o1cAkF
 
 ### Koca Ali
 https://www.canva.com/design/DAGayTCc_zw/JpnOxFTDGnIAoXClXXBfpg/edit?utm_content=DAGayTCc_zw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### Karakterimin Yolculuğu
+https://www.canva.com/design/DAGaaBi_9ss/zAkFbCtyJqbtKnV3z9Bc9A/edit?utm_content=DAGaaBi_9ss&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
