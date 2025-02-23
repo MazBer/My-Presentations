@@ -48,3 +48,6 @@ https://www.canva.com/design/DAGayTCc_zw/JpnOxFTDGnIAoXClXXBfpg/edit?utm_content
 
 ### Karakterimin Yolculuğu
 https://www.canva.com/design/DAGaaBi_9ss/zAkFbCtyJqbtKnV3z9Bc9A/edit?utm_content=DAGaaBi_9ss&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### Future Start
+https://www.canva.com/design/DAGf2jYpowY/lZfLBgVCMMePArS6KYKaFQ/edit?utm_content=DAGf2jYpowY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
