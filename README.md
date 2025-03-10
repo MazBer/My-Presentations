@@ -54,3 +54,6 @@ https://www.canva.com/design/DAGf2jYpowY/lZfLBgVCMMePArS6KYKaFQ/edit?utm_content
 
 ### Eyyübi Lisesi
 https://www.canva.com/design/DAGhOaZ_HpM/rAARaDwskFjgChgnI4tf-g/edit?utm_content=DAGhOaZ_HpM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### Sanctum Sanctorum ve Cağaloğlu
+https://www.canva.com/design/DAGhWZH95q0/ClqQ8G3sowLPtK8Sh9JaHA/edit?utm_content=DAGhWZH95q0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
