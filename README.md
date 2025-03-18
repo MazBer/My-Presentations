@@ -57,3 +57,6 @@ https://www.canva.com/design/DAGhOaZ_HpM/rAARaDwskFjgChgnI4tf-g/edit?utm_content
 
 ### Sanctum Sanctorum ve Cağaloğlu
 https://www.canva.com/design/DAGhWZH95q0/ClqQ8G3sowLPtK8Sh9JaHA/edit?utm_content=DAGhWZH95q0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### Kaşağı Çiftliği ve Duran Emminin Kahvesi
+https://www.canva.com/design/DAGiAnfweVw/uxrCOC7I8e3OaWIGzefcnQ/edit?utm_content=DAGiAnfweVw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
