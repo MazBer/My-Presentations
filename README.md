@@ -59,4 +59,7 @@ https://www.canva.com/design/DAGhOaZ_HpM/rAARaDwskFjgChgnI4tf-g/edit?utm_content
 https://www.canva.com/design/DAGhWZH95q0/ClqQ8G3sowLPtK8Sh9JaHA/edit?utm_content=DAGhWZH95q0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 ### Kaşağı Çiftliği ve Duran Emminin Kahvesi
-https://www.canva.com/design/DAGiAnfweVw/uxrCOC7I8e3OaWIGzefcnQ/edit?utm_content=DAGiAnfweVw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAGiAnfweVw/uxrCOC7I8e3OaWIGzefcnQ/edit?utm_content=DAGiAnfweVw&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutto
+
+### Tamamen Doluyuz
+https://www.canva.com/design/DAGl8a3MjvI/DeC8e-TSjz555NoFE7vVMA/edit?utm_content=DAGl8a3MjvI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
