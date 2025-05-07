@@ -63,3 +63,6 @@ https://www.canva.com/design/DAGiAnfweVw/uxrCOC7I8e3OaWIGzefcnQ/edit?utm_content
 
 ### Tamamen Doluyuz
 https://www.canva.com/design/DAGl8a3MjvI/DeC8e-TSjz555NoFE7vVMA/edit?utm_content=DAGl8a3MjvI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### Sosyal Medya ve Türkçe
+https://www.canva.com/design/DAGmyZZ4ZFk/g6fVeDA2OepsW67tVfnA0A/edit?utm_content=DAGmyZZ4ZFk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
