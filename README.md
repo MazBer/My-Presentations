@@ -66,3 +66,6 @@ https://www.canva.com/design/DAGl8a3MjvI/DeC8e-TSjz555NoFE7vVMA/edit?utm_content
 
 ### Sosyal Medya ve Türkçe
 https://www.canva.com/design/DAGmyZZ4ZFk/g6fVeDA2OepsW67tVfnA0A/edit?utm_content=DAGmyZZ4ZFk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+### And then there were none
+https://www.canva.com/design/DAGn_-JijaU/aCPAKXQJapHipU5fk20CJw/edit?utm_content=DAGn_-JijaU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
