@@ -92,4 +92,4 @@ Sunum: https://www.canva.com/design/DAG6GRwB2FI/Rb4KpPNBZubIksI3Nnn3-g/edit?utm_
 
 Sunum: https://docs.google.com/presentation/d/1ABaEts53QHM6tRYqlxLU0DvxXt10Bv0m/edit?usp=sharing&ouid=108342825427919574785&rtpof=true&sd=true
 
-APK: https://www.canva.com/design/DAG6GRwB2FI/Rb4KpPNBZubIksI3Nnn3-g/edit?utm_content=DAG6GRwB2FI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+APK: https://drive.google.com/file/d/16HL-pz_IectikCycHl0bte3F0mrzQp09/view?usp=sharing
