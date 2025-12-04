@@ -88,7 +88,8 @@ https://www.canva.com/design/DAG2J500Cbc/SRogf4fJg_fqRoit2_kdHA/edit?utm_content
 https://www.canva.com/design/DAG5gRUYAZs/EK0VPvg4fFwW5rZMrhBHjQ/edit?utm_content=DAG5gRUYAZs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 ### XR
-https://www.canva.com/design/DAG6GRwB2FI/Rb4KpPNBZubIksI3Nnn3-g/edit?utm_content=DAG6GRwB2FI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+Sunum: https://www.canva.com/design/DAG6GRwB2FI/Rb4KpPNBZubIksI3Nnn3-g/edit?utm_content=DAG6GRwB2FI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
+Sunum: https://docs.google.com/presentation/d/1ABaEts53QHM6tRYqlxLU0DvxXt10Bv0m/edit?usp=sharing&ouid=108342825427919574785&rtpof=true&sd=true
 
-https://www.canva.com/design/DAG6GRwB2FI/Rb4KpPNBZubIksI3Nnn3-g/edit?utm_content=DAG6GRwB2FI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+APK: https://www.canva.com/design/DAG6GRwB2FI/Rb4KpPNBZubIksI3Nnn3-g/edit?utm_content=DAG6GRwB2FI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
