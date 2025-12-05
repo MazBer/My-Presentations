@@ -95,3 +95,5 @@ Sunum: https://docs.google.com/presentation/d/1ABaEts53QHM6tRYqlxLU0DvxXt10Bv0m/
 APK: https://drive.google.com/file/d/16HL-pz_IectikCycHl0bte3F0mrzQp09/view?usp=sharing
 
 DEV APK: https://drive.google.com/file/d/1GQhxPpK6Rh2YqBb3BfPTBxaOF4NicroA/view?usp=sharing
+
+Video Uzun: https://drive.google.com/file/d/18lLUa_o6h_EYghGdsOLAzmDtLvwtZqw0/view?usp=sharing
